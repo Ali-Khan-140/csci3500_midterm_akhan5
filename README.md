@@ -1,1 +1,0 @@
-# csci3500_midterm_akhan5
